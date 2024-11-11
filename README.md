@@ -1,2 +1,2 @@
 # prajjwalyadav
-Pursuing AI&ml;ML engineering '28 @bms college of engineering, bangalore
+Pursuing AI&ML engineering '28 @bms college of engineering, bangalore
